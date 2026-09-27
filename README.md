@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aldidayu
-- 👀 I’m interested in Web3 and Engineerinh
+- 👀 I’m interested in Web3 and Engineering
 - 🌱 I’m currently learning Tech and Construction Engineering
 - 📫 How to reach me 
 - 😄 Pronouns: ...
